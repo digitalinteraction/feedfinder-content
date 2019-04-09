@@ -56,6 +56,3 @@ If possible in our venue:
 # National Breastfeeding Helpline Tel: 0300 100 0212
 
 [# NHS Breastfeeding Support](https://www.nhs.uk/conditions/pregnancy-and-baby/breastfeeding-help-support/)
-
-
-

@@ -1,5 +1,8 @@
 ## Our Breastfeeding Policy
 
+The following statements have been considered important for supporting women when breastfeeding in public. If you are a business and you would like download this policy and let women know you are breastfeeding friendly please complete this form. 
+
+
 By adopting this policy, we, __________________ agree to the following principles to support women breastfeeding. 
 
 - We will be welcoming of  breastfeeding mothers. 
@@ -24,7 +27,9 @@ Babies often need their nappy changed after feeding, providing changing faciliti
 Feedback from women suggest unhygienic changing facilities negatively impact their breastfeeding experience.
 
 - All new employees will be provided with adequate training on how to support breastfeeding mothers and their children.
-In addition to this policy, the website contains a short video from our local women on how they want to be supported, watch it here [insert URL]. All new staff will watch the video as well as reading this document. 
+In addition to this policy, the website contains a short video from our local women on how they want to be supported, watch it here [insert URL]. All new staff will watch the video as well as reading this document.
+
+- This policy will be reviewed routinely every year to ensure all staff are up to date.
 
 If possible in our venue:
 
@@ -38,7 +43,4 @@ The staff member responsible for the implementation of this policy to all staff 
 
 National Breastfeeding Helpline Tel: 0300 100 0212
 
-[NHS Breastfeeding Support](https://www.nhs.uk/conditions/pregnancy-and-baby/breastfeeding-help-support/) 
-
-
-
+[NHS Breastfeeding Support](https://www.nhs.uk/conditions/pregnancy-and-baby/breastfeeding-help-support/)

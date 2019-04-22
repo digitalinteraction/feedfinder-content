@@ -27,14 +27,8 @@ Unfortunately, we live in a society that sometimes makes it difficult for women 
 Our collaborative approach involved a combination of different methods with the aim of including as many voices as possible. To begin with, we analysed the text reviews from FeedFinder to develop a list of factors that were considered important when meeting women’s breastfeeding needs . 
 We conducted interviews, online consultations, meetings, observations and workshops with parents, infant feeding coordinators, and public health practitioners. 
 
-FeedFinder reviews were used to guide the initial development of the policy and women were invited to comment and provide feedback. An online survey through social media captured opinions on breastfeeding in public from 250 women. To help maintain support of the resource and policy, women are able to review organisations using FeedFinder. Alongside the app and this resource, we have developed a website [insert URL] where you can interact with the review data from FeedFinder and see if your local community is breastfeeding friendly. 
+FeedFinder reviews were used to guide the initial development of the policy and women were invited to comment and provide feedback. An online survey through social media captured opinions on breastfeeding in public from 250 women. To help maintain support of the resource and policy, women are able to review organisations using FeedFinder. 
 
 ### What is the law?
 
 Women are protected to breastfeed anywhere they want under the Equality Act 2010 . The Equality Act describes it as sex discrimination if a woman is treated unfavourably. A woman should not be asked to stop breastfeeding, and if she is, she can complain to the Government Equalities Office and file a claim for discrimination.
-
- 
-
-
-
-

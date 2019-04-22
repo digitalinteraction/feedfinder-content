@@ -1,8 +1,8 @@
-## Our Breastfeeding Policy
+## Want to pledge support to breastfeeding women in your local community? 
 
 The following statements have been considered important for supporting women when breastfeeding in public. If you are a business and you would like to download this policy and let women know you are breastfeeding friendly please complete this [form.](https://forms.gle/X2u2upQx652fdqgn7) You can then download the policy in PDF format and poster to display in your premises. 
 
-
+### Our Breastfeeding Policy
 By adopting this policy, we, __________________ agree to the following principles to support women breastfeeding. 
 
 - We will be welcoming of  breastfeeding mothers. 

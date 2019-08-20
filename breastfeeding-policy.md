@@ -21,7 +21,7 @@ Babies often need their nappy changed after feeding, providing changing faciliti
 7. We will ensure our changing facilities are kept clean and checked on a regular basis.
 Feedback from women suggest unhygienic changing facilities negatively impact their breastfeeding experience.
 8. All new employees will be provided with adequate training on how to support breastfeeding mothers and their children.
-In addition to this policy, the website contains a short video on how they want to be supported, watch it [here] (https://spark.adobe.com/video/P7LuopiLrxv5c). 
+In addition to this policy, the website contains a short video on how they want to be supported, watch it below.
 All new staff will watch the video as well as reading this document.
 9. This policy will be reviewed routinely every year to ensure all staff are up to date.
 10. If possible in our venue:
@@ -29,6 +29,9 @@ We will provide a private area for women to breastfeed.
 Some women prefer more privacy than others when breastfeeding and would prefer to breastfeed in a designated area.
 
 The staff member responsible for the implementation of this policy to all staff is __________________________________.
+
+<iframe src="https://spark.adobe.com/video/P7LuopiLrxv5c/embed"  width="960" height="540" frameborder="0" allowfullscreen></iframe>
+
 
 ### Further information on breastfeeding can be found here:
 

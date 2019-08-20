@@ -7,7 +7,8 @@ If you are a parent or work in breastfeeding support, you can review the list of
 ### Our Breastfeeding Policy 
 By adopting this policy, we, __________________ agree to the following principles to support women breastfeeding. 
 
-- We will be welcoming of  breastfeeding mothers. Breastfeeding women need to be reassured that it is widely accepted and welcome to breastfeed anywhere. A look is important and can say 1000 words, if you happen to catch their eye, don’t stare but give a little smile and she will feel at ease. 
+- We will be welcoming of  breastfeeding mothers. 
+Breastfeeding women need to be reassured that it is widely accepted and welcome to breastfeed anywhere. A look is important and can say 1000 words, if you happen to catch their eye, don’t stare but give a little smile and she will feel at ease. 
 
 - We will not allow any other member of the public to discriminate against breastfeeding women.
 It is against the law to discriminate a woman breastfeeding. Women are protected under the Equality Act 2010 to breastfeed anywhere in a public place. A person who discrimates a breastfeeding mother may be prosecuted.

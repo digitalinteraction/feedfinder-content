@@ -18,7 +18,7 @@ Women are protected to breastfeed anywhere they want under the Equality Act 2010
 
 ### What is FeedFinder?
 
-FeedFinder is a free mobile application developed with breastfeeding mothers to provide them with an easy way to find and share suitable places to breastfeed when out in public. Women are able to find, rate and review places based on how breastfeeding friendly they are. Since the launch, the app has been used by over 12,000 women who have reviewed over 5000 venues. Some of the reviews have been analysed and contributed to the development of this resource. The results from the analysis help us to listen to what local women want when breastfeeding in public. 
+FeedFinder is a free mobile application developed with breastfeeding mothers to provide them with an easy way to find and share suitable places to breastfeed when out in public. Women are able to find, rate and review places based on how breastfeeding friendly they are. Since the launch, the app has been used by over 12,000 women who have reviewed over 5000 venues. Some of the reviews have been analysed and contributed to the development of this resource. 
 
 ### Why do we need a resource like this?
 

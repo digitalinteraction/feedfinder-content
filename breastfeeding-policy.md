@@ -24,7 +24,9 @@ This policy will be reviewed routinely every year to ensure all staff are up to 
 
 The staff member responsible for the implementation of this policy to all staff is __________________________________.
 
+<p align="center">
 <iframe src="https://spark.adobe.com/video/P7LuopiLrxv5c/embed"  width="960" height="540" frameborder="0" allowfullscreen></iframe>
+</p>
 
 ### Further information on breastfeeding can be found here:
 National Breastfeeding Helpline Tel: 0300 100 0212

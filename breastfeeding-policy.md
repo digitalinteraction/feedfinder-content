@@ -1,6 +1,6 @@
-## Want to pledge support to breastfeeding women in your local community? 
+## Want to support breastfeeding women in your local community? 
 
-The following statements have been considered important for supporting women when breastfeeding in public. If you are a public facing business and you would like to download this policy and let women know you are breastfeeding friendly please complete this [form.](https://forms.gle/X2u2upQx652fdqgn7)
+The following statements have been considered important for supporting women when breastfeeding in public. If you are a public facing organisation and you would like to download this policy and let women know you are breastfeeding friendly please complete this [form.](https://forms.gle/X2u2upQx652fdqgn7)
 
 Once you have signed up, you can download the policy in PDF format with an additonal public facing poster to display in your premises.
 
